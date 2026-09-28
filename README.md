@@ -4,7 +4,7 @@
 
 I'm passionate about coding, problem solving, and building impactful projects. I love turning ideas into real-world applications.
 
-## ⚒️ Skills
+## ⚒️ Skills (STILL FIGUREING OUT)
 
 ~ 💻 Languages: C, C++, Python, Java, JavaScript
 
