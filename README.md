@@ -35,7 +35,7 @@ I'm passionate about coding, problem solving, and building impactful projects. I
 
 ## 📞 Connect with me
 
-~ 💼 LinkedIn: [linkedin.com/in/nirmalyaghosh10] (https://linkedin.com/in /nirmalyaghosh10)
+~ 💼 LinkedIn: [linkedin.com/in/nirmalyaghosh10] (https://www.linkedin.com/in/nirmalya-ghosh-15696b439?utm_source=share_via&utm_content=profile&utm_medium=member_android)
 
 ~ ✉️ Email: nirmalyaghosh10@gmail.com
 ----------------------------------------------------
